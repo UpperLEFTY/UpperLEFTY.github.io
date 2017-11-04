@@ -1,1 +1,0 @@
-# upperlefty.github.io
